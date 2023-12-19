@@ -14,4 +14,4 @@ I grew up in China, but I was moved back to the America, at NYC Brookyln at 2012
 5. Lunch
 6. SEP10 (Mr Mueller)
 7. Algebra 2 (Ms Pan and Ms Battaglia)
-8. Chemistry (ms Torres)
+8. Chemistry (Ms Torres)
